@@ -1,4 +1,4 @@
-### Hi there 👋, Hello World..👋👨‍💻
+### Hello World..👋👨‍💻
 #### 💻 Cloud Support Engineer | ☁️ Huawei Cloud Specialist | 🛠️ Problem Solver
 ![💻 Cloud Support Engineer | ☁️ Huawei Cloud Specialist | 🛠️ Problem Solver](https://scontent.fdac24-4.fna.fbcdn.net/v/t39.30808-6/353407299_1846066975788365_3410205062878590134_n.jpg?_nc_cat=107&ccb=1-7&_nc_sid=6ee11a&_nc_eui2=AeFJIVainJxH5xizOW2MX_johDSxZ8vXoY6ENLFny9ehjnIepvZlwm8soSE5iVEiJ7LdB3LQY-9KMYKhGRJP-zdm&_nc_ohc=sIRXJRk1hcQQ7kNvgHyQbl0&_nc_ht=scontent.fdac24-4.fna&oh=00_AYCHh5DddrFcu1w1kyuZ2_0en_3-Ch_moyUJqlUqdMwpzQ&oe=66C52276)
 
